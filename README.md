@@ -9,5 +9,5 @@ I don't have many projects yet, but I'm planning on making some soon.
 
 ## Fun Facts
 
-- I like cats 🐱
+- I like cats 
 - I like anime (mostly romance)
